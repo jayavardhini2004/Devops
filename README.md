@@ -1,5 +1,6 @@
 Task -1
 
-![image](https://github.com/user-attachments/assets/f942a0d3-de57-439d-ae3c-e29d41689666)
+![image](https://github.com/user-attachments/assets/079a85bf-0b2a-48bc-9c17-af5743f19dfc)
+
 ![image](https://github.com/user-attachments/assets/de6caa02-0f1e-45a5-98bd-aef395859a99)
 
